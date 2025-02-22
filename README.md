@@ -10,7 +10,7 @@ Dikerjakan Oleh:
 - Pembuatan Bahan Presentasi
 - Perekaman Presentasi
 - Editing Vidio Presentasi
-- Upload Vidio Presentasi [Youtube](https://youtu.be/_h9xyZZaWZk?si=c_f9vukVgrqfJrwc))
+- Upload Vidio Presentasi [Watch On Youtube](https://youtu.be/_h9xyZZaWZk?si=c_f9vukVgrqfJrwc)
 
 3. M IKHWAN HAMZAH (240401020057)
 • Menu Utama
